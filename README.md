@@ -1,1 +1,0 @@
-# qrish_privacy
